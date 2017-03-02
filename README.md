@@ -1,3 +1,6 @@
-# nic
+# NEW
 
-no elo
+_Kamil Kaczorkowski_
+
+
+## Nwm co tu bedzie
